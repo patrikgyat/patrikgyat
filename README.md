@@ -7,11 +7,11 @@
 
    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ elliot　//　elijah　.　15yro　.　bipolor　.　:3‎ ‎ ‎ ‎ ‎ ‎ ‎ 🕸
 
-   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ usually　in cosplay!!　.　pls　c+h and int I begg‎ ‎ ‎ ‎ 🎸
+   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ usually　in cosplay!!　. all ships c+h and int  ‎ ‎ ‎ ‎ 🎸
 
    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ read strawp b4 u int　.　touch　comfort 100% ..‎ ‎ ‎ ‎ ‎‎ 🕷
 
-   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ im literally alastor guys　.　#1　radioapple fan mwa
+   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ im literally alastor guys　.　#1　multishipper
 
 ‎ ‎‎‎![17405160144731082873325152747206](https://github.com/user-attachments/assets/3f97e6ae-7f94-4b11-a4d1-527e7e54c1ea)
 
