@@ -3,14 +3,14 @@
 
 
 
-   elliot　//　elijah　.　15yro　.　bipolor　.　:3
+   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ elliot　//　elijah　.　15yro　.　bipolor　.　:3
 
-   usually　in cosplay!!　.　pls　c+h and int I begg ♡
+   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ usually　in cosplay!!　.　pls　c+h and int I begg ♡
 
-   read strawp b4 u int　.　touch　comfort 100% ..
+   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ read strawp b4 u int　.　touch　comfort 100% ..
 
-   im literally alastor guys　.　#1　radioapple fan mwah
+   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ im literally alastor guys　.　#1　radioapple fan mwa
 
 
-![17404964707773792418213379023564](https://github.com/user-attachments/assets/803385d0-f5c3-4022-a718-cc7d317f1f71)
+‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎   ‎ ![17404964707773792418213379023564](https://github.com/user-attachments/assets/803385d0-f5c3-4022-a718-cc7d317f1f71)
 
